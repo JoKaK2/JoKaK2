@@ -1,0 +1,1 @@
+Adventurer, wanderer, explorer, learner
